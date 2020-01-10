@@ -3,3 +3,4 @@
 qqqqqqqqqqqwwwwrrr
 打工是不可能打工的，这辈子都不可能打工的
 猛兽总是独行，牛羊才成群结队
+keep foolish
